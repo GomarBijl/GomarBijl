@@ -1,1 +1,1 @@
-Developer at WisetechGlobal, former LSP Solutions
+Developer at WisetechGlobal, former LSP Solutions Utrecht
